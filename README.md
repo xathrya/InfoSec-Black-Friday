@@ -91,6 +91,11 @@ https://platzi.com/blackfriday
 30% off one year subscription \
 Deal ends: 25th November
 
+Zero-Point Security \
+https://training.zeropointsecurity.co.uk
+20% at checkout with code: BLACKFRI22 \
+Deal ends: end of Monday (21st November)
+
 ## Mini Course Bundles:
 
 ## Hardware:
